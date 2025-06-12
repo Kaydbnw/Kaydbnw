@@ -1,4 +1,4 @@
 Hi 
-i'm kayd bnw 👑
-artiste🚀🏌️
+I'm Kay Davinchi 👑
+Artist🚀🏌️
 programmer /cybersecurity 👾
